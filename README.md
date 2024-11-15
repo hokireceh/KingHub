@@ -3,7 +3,7 @@
 # New Airdrops : KingHub 
 🏷️ Reward: Point & Token ( For All )
 
-## ➡️ Register: https://t.me/KingHubSuperApp_Bot/GoApp?startapp=111467289
+## ➡️ Register: [https://t.me/KingHubSuperApp_Bot/GoApp?startapp=111467289](https://t.me/KingHubSuperApp_Bot/GoApp?startapp=111467289)
 - Create Account
 - Mining KCC
 - Done 100% Free
