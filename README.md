@@ -1,7 +1,6 @@
 ![image](https://github.com/user-attachments/assets/709d8fa7-29ea-4699-92a0-a0d28e7c2afc)
 
 # New Airdrops : KingHub 
-
 🏷️ Reward: Point & Token ( For All )
 
 ## ➡️ Register: https://t.me/KingHubSuperApp_Bot/GoApp?startapp=111467289
